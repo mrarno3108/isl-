@@ -1,2 +1,0 @@
-# isl&
-apostrophê e.V.
